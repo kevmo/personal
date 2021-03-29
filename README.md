@@ -1,2 +1,9 @@
 # personal
-More than you ever wanted to know about ol Kevin Moore
+
+Preferred name: Kevin
+
+Preferred pronouns: he/him
+
+Feedback delivery
+
+
