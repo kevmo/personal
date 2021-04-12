@@ -47,3 +47,9 @@ Good teammates. Never underestimate the power of being surrounded by highly-moti
 ## Comics I've Published
 
 One of the cooler things I've done the last few years is authoring some comics with @teenyrobots. So far, [my published work](https://www.vox.com/the-highlight/22327700/debt-prison-debtors-unpaid-bills) has largely revolved around the themes of [Debt in America](https://thenib.com/americans-are-drowning-in-debt/), but I would like to expand to writing some other economics-themes comics. 
+
+## Other Things
+
+I read a lot, so please feel free to make book/article recommendations to me, _especially_ if it has to do with something we work on together.
+
+I
