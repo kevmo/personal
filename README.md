@@ -35,3 +35,5 @@ Laughter. Please feel free to make jokes around me. Even if I don't laugh, I'm l
 "What's the worst that could happen?"
 
 "It is important to draw wisdom from many different places." -Uncle Iroh
+
+"Play stupid games, win stupid prizes."
