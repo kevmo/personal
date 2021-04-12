@@ -26,7 +26,12 @@ Laughter.
 
 "Luck is what happens when preparation meets opportunity." -often attributed to Seneca the Younger
 
+"Despair is not an option." -Bernie Sanders
 
+"The master's tools will never destroy the master's house." -Audre Lorde
 
+"The challenge and the mission are to find real solutions to real problems on actual schedules with available resources." -Fred Brooks (Mythical Man Month)
 
+"What's the worst that could happen?"
 
+"It is important to draw wisdom from many different places." -Uncle Iroh
