@@ -52,4 +52,7 @@ One of the cooler things I've done the last few years is authoring some comics w
 
 I read a lot, so please feel free to make book/article recommendations to me, _especially_ if it has to do with something we work on together.
 
-I
+I have an extremely attractive dog. 
+
+![IMG_3256](https://user-images.githubusercontent.com/1034221/114449598-eb52a000-9ba2-11eb-9918-b5a81e0f0d42.jpeg)
+
