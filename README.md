@@ -18,7 +18,7 @@ Direct & ASAP. Raise issues, and we will resolve them (probably...). I almost ne
 
 Improving the lives of other people.
 
-Laughter.
+Laughter. Please feel free to make jokes around me. Even if I don't laugh, I'm likely to be amused by the effort!
 
 ## 📣 Quotes I like
 
