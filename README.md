@@ -1,3 +1,4 @@
+![IMG_3709](https://user-images.githubusercontent.com/1034221/114450305-d9bdc800-9ba3-11eb-9976-367d179264c7.jpeg)
 # Kevin Moore's Super-Awesome Personal README
 
 🌴 I am a Florida-based developer, writer, and activist/organizer.  I typically work on a contract/freelance basis.  I am always interested in hearing about people's newest projects, espcially ones designed for large-sized impact. I have a law degree and once worked as a lawyer, but no longer have a license (by choice!). I still use my legal skills for various projects, though.
